@@ -11,7 +11,7 @@
         　🛹 　◞　✙  Mexican/cuban American -- xx
 ✦　　౨౿　Female -- xx
 ❀𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡❀
-          🍴   ✧˖°.　Madcom -- xx
+          🍴   ✧˖°.　Dan vs -- xx
 ➠ ⸝⸝   ⊹ Mk & Splatoon 3 -- xx
        ﹒🍳    ﹒◠   ✩ Arctic Monkeys -- xx
 ıllı , .    ﾉ 　Shoutout to my buddies -- xx
