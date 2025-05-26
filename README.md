@@ -13,7 +13,7 @@
 ❀𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡❀
           🍴   ✧˖°.　Dan vs -- xx
 ➠ ⸝⸝   ⊹ Mk & Splatoon 3 -- xx
-       ﹒🍳    ﹒◠   ✩ Arctic Monkeys -- xx
+       ﹒🍳    ﹒◠   ✩ Arctic Monkeys & Limp Bizkit -- xx
 ıllı , .    ﾉ 　Shoutout to my buddies -- xx
         🖤﹐⸝⸝  ﹐red, black and purple -- xx
 :  ˙ . ꒷ Crab rangoons -- xx
